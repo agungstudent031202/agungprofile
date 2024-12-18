@@ -12,4 +12,7 @@ I aspire to build a career as a **Software Engineer** in the future.
 
 ---
 
+## 🌐 Connect With Me
+- LinkedIn: [Agung Setiawan](https://www.linkedin.com/in/agung-setiawan-573294234/)
+
 Thank you for visiting my profile! 😊
